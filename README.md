@@ -1,2 +1,0 @@
-Link YouTube TA PJK Judul 1 
-https://youtu.be/-EKXRboEMpM
